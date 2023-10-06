@@ -1,5 +1,1 @@
-This is your prelim laboratory exam.
-
-Use everything you learned (if there is) in solving this repository.
-
-Goodluck!
+Hi! I'm Vincent John C. Cuaresma, 20 years old, and i like going on roadtrips  
